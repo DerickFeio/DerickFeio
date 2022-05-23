@@ -1,0 +1,2 @@
+- 👋 Oi eu sou @DerickFeio
+- Quero muito aprender a fazer jogos eletronicos ou a programar em geral :D
